@@ -1,4 +1,4 @@
-
+Experience scary shawarma kiosk like never before with smart Scripts for scary shawarma kiosk, the #1 Script. Includes speed and auto-heal for
 
 
 
